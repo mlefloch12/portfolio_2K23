@@ -19,7 +19,7 @@ Le 7 mars 2023, TikTok envoie une annonce aux créateurs afin de réaliser un co
 
 Du 6 au 29 mars, nous devions créer, monter et publier notre court-métrage afin de proposer notre candidature et du 24 au 28 avril, les lauréats ont été contactés.
 
-### Pourquoi ai-je fait ce court-métrage.
+### Pourquoi ai-je fait ce court-métrage ?
 
 Ce court-métrage est pour moi une occasion aussi de créer du contenu sur un thème qui me tient à coeur, la phobie sociale. La phobie sociale fait de plus en plus surface de nos jours et beaucoup en souffre alors je souhaitais mettre en place un personnage souffrant de cette phobie où des personnes pourraient se retrouver au travers de celui-ci.
 
