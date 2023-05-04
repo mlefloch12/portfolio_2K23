@@ -29,11 +29,11 @@ Pour créer ce court-métrage, j'ai tout d'abord fait une liste de tout ce que j
 
 Après avoir fait cet inventaire, vient la rédaction du scénario. Plusieurs versions ont été faites avant de choisir la version finale du scénario, celle que je devrais suivre.
 
-Vient alors le jour de tournage, j'ai consacré une journée entière où je tournais les divers plans qui seront dans la vidéo, tous réaliser plusieurs fois afin de choisir ceux qui me plaisaient.
+Vient alors le jour de tournage, j'ai consacré une journée entière où je tournais les divers plans qui seront dans la vidéo, tous réalisés plusieurs fois afin de choisir ceux qui me plaisaient.
 
-Après avoir choisi les plans, l'ordre dans lequel les mettre, les sons que j'ajouterais au montage s'en suit celui-ci. J'ai utiliser iMovie pour faire le montage du court-métrage car je travaille souvent avec cette application.
+Après avoir choisi les plans, l'ordre dans lequel les mettre, les sons que j'ajouterai au montage s'en suit celui-ci. J'ai utilisé iMovie pour faire le montage du court-métrage car je travaille souvent avec cette application.
 
-Pour finir, j'ai publier la vidéo avant la date limite avec la description adéquate, les informations nécessaires.
+Pour finir, j'ai publié la vidéo avant la date limite avec la description adéquate, les informations nécessaires.
 
 #### Lien de la vidéo :
 
