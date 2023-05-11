@@ -1,6 +1,6 @@
 ---
 title: PHOBIE SOCIALE - MIST (court-métrage)
-publishDate: 2023-28-03 00:00:00
+publishDate: 2023-03-28 00:00:00
 img: /assets/cm-phobie.jpg
 img_alt: Miniature du court-métrage.
 description: |
